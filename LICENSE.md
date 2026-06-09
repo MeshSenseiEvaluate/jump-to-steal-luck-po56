@@ -1,4 +1,4 @@
-# 
+# jump to steal lucky blocks secure Scripts offers the most advanced jump to steal lucky blocks Script, with auto-upgrade and teleport. Perfect for
 
 
 
